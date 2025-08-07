@@ -19,7 +19,7 @@
 
 ## 📸 Preview (Optional)
 
-> _You can add screenshots here later if you'd like!_
+> _screenshots coming soon!_
 
 ---
 
